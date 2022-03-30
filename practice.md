@@ -20,3 +20,90 @@ That night I find a bobcat enthusiast forum online. There's a Google map layer w
 Did you get a picture? he asks.
 No, I say.
 
+It takes as input Newton's laws and derives the rest.
+
+The forensic simulation project. The energy cost of several suns. This replaces time travel. We believe non-local effects are negligible. We need an idea you were about to have. The process is: rewind, copy, transmit, rewind before the copy, playback.
+
+---
+processing
+
+---
+The story about the guy at the bar who is a little older than the others. Going to his house, then leaving.
+
+The joke about the guy who is not an old guy but just a little too old for the club.
+
+The memory of music in Austin. Crowded rooms. Crowded streets. Looking out from a chain link fence from a two-story window.
+
+A memory of changing in the ladies room before it was really the ladies room. That is, when it was empty. Thinking I could get done quickly, but taking too long, then wondering if I already knew I'd take too long.
+
+The realization that if I weren't alone it would all be fine. If someone would just come with me, do things with me, I wouldn't have to worry about being seen as an old vampire trying to stay young.
+
+---
+It was like you couldn't even begin to have a chance if you didn't grossly overrate your personal capabilities and probality of success. Like, the whole thing is set up to weed out anyone who wasn't an egomaniac. Or, just, you couldn't get started if you didn't first have... or that the thought that started you always had to be something wildy--ahh. He laughed, realizing what it was. Fools, he said, meeting his own gaze in the mirror. I'll show you all.
+
+---
+Why would I get in a ship that would break if it hits a rock?
+---
+Do I need to wear a seatbelt or something?
+No.
+---
+Binder, breaker, candlemaker
+Binder, breaker, caster, maker
+---
+textbox. A puzzle game.
+---
+processing
+---
+It's easy to be fooled by me
+I'm soft and sweet and chewy
+---
+processing
+---
+The currency of academia is recognition. One trades citation and homage for membership. willingness to worship and ability to select the right gods. 
+---
+Only when she was coming back to herself did I realize how far gone she'd been. The inability---or more like refusal---to remember a comment from even a few seconds ago; the hardness of hearing; the pained face in response to every word; in sum an all out retreat from communication.
+
+The ice cream incident. Five spoonfuls.
+
+And any effort to point out that a problem exists treated like pure violence. Masculine, racist aggression. In other words attacked with all weapons that could be summoned.
+
+I realized at the same time that my foundations are not very strong. I am succeptible to madness. I allow it space to breathe and eventually flourish until it takes root in me also. I find common ground, and I nod. Corry, my brother, my mother. To some degree I think this is a human quality, but some of us are more mercifully dismissive, or do less to question their own core beliefs, or else are more willing to give up the closely guarded secrets of wayward friends in return for reassurance.
+---
+A's story:
+Let's make a plan for our lives. What do you want?
+It's embarrassing. It's simple--just to be of use. I'm not like you where there's one thing I've always wanted to do. I sometimes wish I'd just studied math.
+<plan to enroll in a CS degree>
+---
+Me, The Great
+---
+A question we didn't quite know the answer to, I'll call the trans white woman question. It is: why do we accept that a person who has been designated a particular, privileged identity at birth can, by virtue of an internal decision, opt out of it, and instead claim a different, less privileged identity, but--and this is the key part of the question--only when this claim involves gender, and not when it involves other aspects of identity, such as race?
+
+Concretely, why do we accept that a person who was designated white and male from birth should be able to claim white and female, but not, say, black and male?
+
+The case of Rachel Dolezal, and the fury it provoked, continues to argue that this question is not merely hypothetical.
+
+My tentative guess is that we believe that one kind of claim is authentic and the other is not. That trans people identifying with a gender other than the one for which they were externally "marked" or read is "real", a genuine feeling, whereas identifying with another race is seen as a kind of fakery for an ulterior purpose. Certainly the history of blackface and cultural appropriate adds to the sensitivity.
+
+But what is very uncomfortable about this, if it's true, is that it forces one of two choices:
+* Either there is something "essential" about gender identification that is not present in the case of racial identification, or
+* We are collectively policing which kind of claims are legitimate and which are not.
+
+Essentialism is the easy way out. But it is also an uneasy way out. We would need to say why essentialism is valid for claims of gender identification but not for gender itself.
+
+I think the second option is the more probable, and makes it easier to explain why we are reluctant to consider the question. It is currently forbidden to police gender identification and say whose claims are legitimate and whose are not. The idea of a person "pretending" to be trans is interdicted because it will so obviously be adopted for abuse and attack. The paranoid characterization of trans women as "perverted men" who want to sneak into women's locker rooms would be amplified by any admission that there might be some who choose their gender identification for ulterior reasons.
+
+And yet, consider the cases of Keller and Melanie. The first is a cis white male academic who identifies as queer based on the claim that his performance of masculinity is non-standard, and who uses this identification in applications for grants and positions.
+
+Consider Elizabeth Warren and Rachel Dolezal.
+---
+Consider don't litter.
+When a cat sees a sandbox it thinks it's a potty, daddy.
+You need a little sandbox in your house.
+Why do you need a little sandbox in your house?
+---
+Porn Again, Christian. Adult content in the Biblical sense.
+His Kingdom Come: Last Night in Babylon.
+---
+Now I remember they were all about robots. All the books in the library. How to build them. How to take them apart. What to do with them on the weekends. All the cool robot hangouts in the city after dark.
+---
+
