@@ -106,4 +106,28 @@ His Kingdom Come: Last Night in Babylon.
 ---
 Now I remember they were all about robots. All the books in the library. How to build them. How to take them apart. What to do with them on the weekends. All the cool robot hangouts in the city after dark.
 ---
+Jim's story about Foucault in the lecture hall where everyone was smoking.
+---
+He was born a day early and the nurse kept cutting his heel to test his blood. Every time the pain would rise slowly through his body and seconds later he would scream.
+Stop doing that. I said. 
+I know, she said. But he won't remember.
+If I beat you to death you wouldn't remember either.
+Sir!!
+I'm saying that doesn't make it OK. You're the one saying that makes it OK.
+---
+Time traveling plants.
+---
+Bright green geyser. First bubbling then leaping up in great spurts. Workers backed up wiping their eyes, snapping their wrists toward the ground and flinging drops from their fingers. Each landed and splattered and congealed into small translucent leaves. The rest spread into liquid sheets that solidified in the air, hung above them like great ferns, still wet and casting new green shade. The core of the geyer rose yet further, stretching up and up, each blast forming a new, higher layer, out of sight. The whole great vine swayed in the wind, and everyone ran back. But it seemed to find some tether in the sky.
+---
+This life form born in the depths of space adapted to a constant velocity of 30% the speed of light. It can only perceive things thousands of miles away.
+---
+These planet-sized plants live for billions of years. Their experience of time is profoundly accelerated relative to ours, such that anything that anything that remains within their sensory range for less than 1,000 years appears something like a flash of light. To us their growth and movement is imperceptible. To each other they seem to move as quickly as we do.
 
+Their scientists are exploring nanotemporal imaging, to harness the power of the hyperactive world. The primary application is warfare. The human race is considered a gateway to harnessing devastating weaponry, virtually indistinguishable from magic.
+
+---
+A human taking bubble form, falling in love.
+
+---
+Their job is to create translation technologies. 
+ 
