@@ -35,6 +35,4 @@ The question of what was being compared was left as an exercise to the reader, a
 
 In retrospect, "time" is probably a better word for what Dickison is describing. Still, I think death is not too far off.
 
-Years later I remembered that conversation while I was reading Harry Potter and the Half-Blood Prince. I was sitting on a bus in San Francisco. Harry and Dumbledore were crossing a subterranean lake of dead bodies put in place by Lorde Voldemort to frighten intruders away, and Dumbledore told Harry that Voldemort uses dead bodies because he finds them frightening. The cave had that ominous ambience that Berg had found to be absent in Dickinson's poem, and I finally realized what should have been obvious all along. 
-
-Emily Dickison was not afraid of death.
+Years later I remembered that conversation while I was reading Harry Potter and the Half-Blood Prince. I was sitting on a bus in San Francisco. Harry and Dumbledore were crossing a subterranean lake of dead bodies put in place by Lorde Voldemort to frighten intruders away, and Dumbledore told Harry that Voldemort uses dead bodies because he finds them frightening. The cave had that ominous ambience that Berg had found to be absent in Dickinson's poem, and I finally realized what should have been obvious all along. Emily Dickison was not afraid of death.
