@@ -1,3 +1,9 @@
+The silent TV is playing Harry Potter.
+
+Harry Potter and the Sorcerer's Stone Cold Beast.
+
+Before and after. Hagrid is sitting on the boat.
+
 What I'm trying to say is like there was this woman standing in line behind me in on the sidewalk outside the theater when the fight broke out across the street. It was a group of black guys, local to this part of town, and one of them was losing badly. Lying on the ground in the gutter and getting kicked hard. My eye was on the doors of the theater, not yet open. It was 6:27. This woman was trying to talk to me about something that was not the fight and I kept looking over her shoulder to try to gauge how out of hand it was getting, as the crowd around this guy got bigger.
 
 I'm sorry I said I'm kind of nervous about this situation and she was like what. She turned around and then looked back at me.
@@ -30,3 +36,12 @@ Another performance, years before. I'm in the bathroom wearing a tails suit. Thi
 
 
 And then the third one is Jefferson Lovely.
+
+---
+
+Also included for some strange reason: the fudge bar, pottery barn machinations.
+
+Anything else weird I said?
+
+A question about Tar. Allergy to small talk. A great performance in 2022. High out of mind. Victor.
+
